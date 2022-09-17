@@ -2,4 +2,5 @@
 
 ## Voters-in-Kenya-2017
 
-![images](https://user-images.githubusercontent.com/100701309/190850219-2427c3f6-6747-439b-941b-76dfd2ee5dd2.jpg)
+
+![kenya-flag-male-hand-voting-with-kenya-flag-concept-idea-background_126712-1462](https://user-images.githubusercontent.com/100701309/190850713-81629a47-f00a-44b2-8eda-60ce11fc637d.jpg)
